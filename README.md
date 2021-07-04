@@ -7,7 +7,7 @@
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_02](https://user-images.githubusercontent.com/20723919/124382600-45c34e80-dd03-11eb-8107-06addd6c6a60.JPG)
 
-アジ、サーモン
+アジとサーモン
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_03](https://user-images.githubusercontent.com/20723919/124382602-45c34e80-dd03-11eb-94e0-da7d98f4dc8e.JPG)
 
