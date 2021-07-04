@@ -1,5 +1,5 @@
 # Tachigui-Sakurazushi_Ikebukuro_Tokyo
-立喰 さくら寿司、シャリ少なめ・シャリなし可、場所：東京・池袋
+立喰 さくら寿司、シャリ少なめ・シャリなし可。【場所：東京・池袋】
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_01](https://user-images.githubusercontent.com/20723919/124382599-43f98b00-dd03-11eb-9e30-42474e45beeb.JPG)
 
