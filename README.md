@@ -49,11 +49,11 @@
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_13](https://user-images.githubusercontent.com/20723919/124382616-4956d580-dd03-11eb-973a-0ee982c79a20.JPG)
 
-本マグロの中トロ
+本マグロの中トロ(本鮪)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_14](https://user-images.githubusercontent.com/20723919/124382617-4956d580-dd03-11eb-89a0-6879136fdf86.JPG)
 
-本マグロの赤身
+本マグロの赤身(本鮪)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_15](https://user-images.githubusercontent.com/20723919/124382618-49ef6c00-dd03-11eb-8c4b-fa4f5e59bced.JPG)
 
