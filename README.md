@@ -3,19 +3,19 @@
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_01](https://user-images.githubusercontent.com/20723919/124382599-43f98b00-dd03-11eb-9e30-42474e45beeb.JPG)
 
-イワシ
+イワシ(鰯)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_02](https://user-images.githubusercontent.com/20723919/124382600-45c34e80-dd03-11eb-8107-06addd6c6a60.JPG)
 
-アジとサーモン
+アジ(鯵)とサーモン
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_03](https://user-images.githubusercontent.com/20723919/124382602-45c34e80-dd03-11eb-94e0-da7d98f4dc8e.JPG)
 
-お新香巻き(たくあん)と漬けマグロ
+お新香巻き(たくあん)と漬けマグロ(鮪)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_04](https://user-images.githubusercontent.com/20723919/124382603-465be500-dd03-11eb-90af-c3c61bc470b1.JPG)
 
-シメサバ
+シメサバ(鯖)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_05](https://user-images.githubusercontent.com/20723919/124382604-465be500-dd03-11eb-928f-c8549c4f25f9.JPG)
 
@@ -29,7 +29,7 @@
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_08](https://user-images.githubusercontent.com/20723919/124382609-478d1200-dd03-11eb-9e7a-2f12ba7a1746.JPG)
 
-マダイ
+マダイ(真鯛)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_09](https://user-images.githubusercontent.com/20723919/124382610-4825a880-dd03-11eb-8b20-5c8d9eb9c96d.JPG)
 
@@ -45,7 +45,7 @@
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_12](https://user-images.githubusercontent.com/20723919/124382615-48be3f00-dd03-11eb-8f26-ee6e6f4ff264.JPG)
 
-トビウオ
+トビウオ(飛魚)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_13](https://user-images.githubusercontent.com/20723919/124382616-4956d580-dd03-11eb-973a-0ee982c79a20.JPG)
 
