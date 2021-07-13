@@ -37,11 +37,11 @@
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_10](https://user-images.githubusercontent.com/20723919/124382611-4825a880-dd03-11eb-8f76-f4dc8f7b9608.JPG)
 
-シマアジ
+シマアジ(縞鯵)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_11](https://user-images.githubusercontent.com/20723919/124382613-48be3f00-dd03-11eb-8325-bfcf94342d83.JPG)
 
-トリ貝
+トリ貝(鳥貝)
 
 ![Tachigui-Sakurazushi_Ikebukuro_Tokyo_12](https://user-images.githubusercontent.com/20723919/124382615-48be3f00-dd03-11eb-8f26-ee6e6f4ff264.JPG)
 
